@@ -1,1 +1,1 @@
-### trust when i say i have ok skins i just like that stupid lime
+trust when i say i have okayish skins i just like that stupid lime

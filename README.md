@@ -1,4 +1,4 @@
-trust when i say i have okayish skins i just like that stupid lime pony
+when u see my actual skins just know i hate all of them and i wanna delete my whole account
 
 IM SCARED OF PPL IM SORRY IF I DONT INTERACT IF WE ARE HOMIES
 
